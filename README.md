@@ -21,7 +21,11 @@
 Если близко воробей -
 Мы готовим пушку.
 Если муха - муху бей!
-Взять её на мушку.<br><br>
+Взять её на мушку.
+
+Предыдущий урок:
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/766429d5-318c-4e05-a012-b9d58e909f8c =200x200)
+stolbitsa.com/fistachka/ohrana<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
@@ -45,5 +49,9 @@ Oh, rano vstayot ohrana!
 Esli blizko vorobej -
 My gotovim pushku.
 Esli muha - muhu bej!
-Vzyat' eyo na mushku.<br><br>
+Vzyat' eyo na mushku.
+
+Previous lesson:
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/766429d5-318c-4e05-a012-b9d58e909f8c =200x200)
+stolbitsa.com/fistachka/ohrana<br><br>
 
