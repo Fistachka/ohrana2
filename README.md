@@ -46,3 +46,5 @@ Esli muha - muhu bej!
 Vzyat' eyo na mushku.
 <br><br>
 
+![](https://github.com/user-attachments/assets/111c9973-8260-49ac-8713-245f1de82bd9)
+![](https://github.com/user-attachments/assets/1b2473d2-46b7-47df-b71f-c08dc6499830)
