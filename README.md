@@ -1,19 +1,20 @@
 <span id="ru"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-«Ох, рано встает охрана» м/ф "Бременские музыканты" 1 куплет
-![](https://github.com/user-attachments/assets/e8e48f40-2c93-403b-bc45-5ed55b4989af)
+«Ох, рано встает охрана» м/ф "Бременские музыканты" 2 куплет
+![](https://github.com/user-attachments/assets/1b2473d2-46b7-47df-b71f-c08dc6499830)
 
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/idIQIBY-iSQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/zSXJFp-BMiA" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-Почётна и завидна наша роль,
-Да наша роль,
-Да наша роль,
-Да наша роль.
-Не может без охранников король.
-Когда идём - дрожит кругом земля.
-Всегда мы подле, подле короля.
+Куда идёт король - большой секрет.
+Большой секрет.
+Большой секрет.
+Большой секрет.
+Большой секрет.
+А мы всегда идём ему вослед.
+Величество должны мы уберечь
+От всяческих ему не нужных встреч.
 
 Ох, рано встаёт охрана!
 
@@ -24,27 +25,25 @@
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-"Oh, the guards wake up early!" - "Oh, rano vstayot ohrana!"  ("The Bremen Town Musicians" -  "Bremenskie muzykanty") 1 part
-![](https://github.com/user-attachments/assets/e8e48f40-2c93-403b-bc45-5ed55b4989af)
+"Oh, the guards wake up early!" - "Oh, rano vstayot ohrana!"  ("The Bremen Town Musicians" -  "Bremenskie muzykanty") 2 part
+![](https://github.com/user-attachments/assets/1b2473d2-46b7-47df-b71f-c08dc6499830)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/E_QANMn_H9s" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/JAdJu8cr2FM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-Pochyotna i zavidna nasha rol',
-Da nasha rol',
-Da nasha rol',
-Da nasha rol'.
-Ne mozhet bez ohrannikov korol'.
-Kogda idyom - drozhit krugom zemlya.
-Vsegda my podle, podle korolya.
+Kuda idyot korol' - bol'shoj sekret.
+Bol'shoj sekret.
+Bol'shoj sekret.
+Bol'shoj sekret.
+Bol'shoj sekret.
+A my vsegda idyom emu vosled.
+Velichestvo dolzhny my uberech'
+Ot vsyacheskih emu ne nuzhnyh vstrech.
 
 Oh, rano vstayot ohrana!
 
 Esli blizko vorobej -
 My gotovim pushku.
 Esli muha - muhu bej!
-Vzyat' eyo na mushku.
-<br><br>
+Vzyat' eyo na mushku.<br><br>
 
-![](https://github.com/user-attachments/assets/111c9973-8260-49ac-8713-245f1de82bd9)
-![](https://github.com/user-attachments/assets/1b2473d2-46b7-47df-b71f-c08dc6499830)
